@@ -6,7 +6,7 @@
 
 - Practial Assignment 2
 
-    - 
+    - 80,00
 
 - Practial Assignment 3
 
