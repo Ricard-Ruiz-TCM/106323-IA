@@ -10,4 +10,4 @@
 
 - Practial Assignment 3
 
-    - 
+    - 100,00
